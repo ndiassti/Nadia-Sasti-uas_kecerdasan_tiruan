@@ -1,0 +1,1 @@
+# Nadia-Sasti-uas_kecerdasan_tiruan
